@@ -1,6 +1,6 @@
 PRIVACY POLICY​​
 
-Last Change: Monday, June 6 2024
+Last Change: Monday, June 6th 2024
 
 Introduction
 
